@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rainbowinsky
+- 👋 Hi, I’m @Jidamnguanbean
 - 👀 I’m interested in Money
 - 🌱 I’m currently learning Web and someting of interest
 - 💞️ I’m looking to collaborate on ...
